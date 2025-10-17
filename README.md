@@ -1,1 +1,1 @@
-#chutok pomenyal
+zhepa ebat krutoi
