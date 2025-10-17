@@ -1,3 +1,1 @@
-# как пользовтаься гит
-#dkjfkdjk
-zaepa lox
+#chutok pomenyal
